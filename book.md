@@ -160,6 +160,24 @@ Le app di incontri hanno influenzato anche il modo in cui viviamo la sessualità
 
 Ma questa abbondanza ha il suo lato oscuro. Ci ha resi impazienti. Appena notiamo un difetto in qualcuno, siamo pronti a scartarlo, convinti che, con così tante opzioni a disposizione, ci sarà sempre di meglio. Inseguiamo una perfezione che forse non esiste, alimentata da un’idea ideale costruita nella nostra mente. E così, nella ricerca continua, rischiamo di non essere mai soddisfatti, saltando da una conoscenza all’altra senza mai fermarci davvero.
 In definitiva, il modo in cui incontriamo le persone è cambiato radicalmente. Le app di incontri ci offrono opportunità incredibili, ma ci pongono anche di fronte a nuove sfide. Ci spingono a riflettere su cosa vogliamo davvero e su quanto siamo disposti a investire per costruire una connessione autentica.
+## Non spoilerare il tuo libro
+
+In questo capitolo voglio parlare di comunicazione: quella aperta, quella necessaria, ma anche quella che — a volte — fa più male che bene. Parlo di quando ci si apre troppo con la persona che si sta frequentando, con quella che ci piace in quel momento.
+
+Mi sono accorto di avere questo difetto: mi apro troppo, parlo troppo di me, metto dei paletti ancora prima che la relazione si faccia seria. È come pronunciare un giudizio affrettato su quello che sarà, bloccando sul nascere l'evoluzione naturale del legame.
+
+Raccontare troppo di sé: è una cosa positiva?
+
+Mi piace fare un'analogia con un libro. Noi stessi siamo un libro. Il contenuto di questo libro siamo noi — la nostra storia, i nostri valori, le nostre ferite, i nostri sogni — e lo consegniamo a qualcuno, la persona che stiamo frequentando, perché lo legga. Perché lo scopra pagina dopo pagina, perché si appassioni o si allontani, basandosi su quello che incontra leggendo.
+
+Cosa succede, però, se invece di consegnare il libro e aspettare che lo leggano, lo spoileriamo? Se raccontiamo tutto su di noi fin dall'inizio — come funzioniamo, cosa vogliamo, come siamo — togliamo alla persona la possibilità di scoprirlo da sola. E quella scoperta, quella lettura lenta e personale, è esattamente ciò che permette di innamorarsi.
+
+Spoilerare il libro della nostra vita rovina la lettura. Altera la percezione che l'altra persona si sta costruendo — una percezione che dovrebbe essere sua, nata dall'esperienza diretta, non filtrata dalla versione che noi diamo di noi stessi.
+
+La comunicazione è fondamentale, questo è certo. Ma bisogna saper distinguere: comunicare per aiutare a comprendere le parti oscure del libro va bene. Comunicare per anticipare tutto quello che ancora deve venire, no. Nel primo caso si aiuta la lettura, nel secondo la si sostituisce.
+
+La lezione, almeno per me, è questa: lasciar leggere. Stare presenti, essere onesti, ma avere anche la pazienza di aspettare che l'altro arrivi da solo alle conclusioni. Perché l'amore che nasce dalla scoperta è più vero di quello che nasce da una presentazione.
+
 ## Il contesto conta
 
 Questo fine settimana di Pasqua ho risentito, dopo tanto tempo, una sensazione che credevo quasi dimenticata: un’attrazione intensa, profonda, autentica. Non c’erano le circostanze per avvicinarsi, per tentare una conoscenza, eppure bastava starle accanto per sentire qualcosa muoversi dentro.
