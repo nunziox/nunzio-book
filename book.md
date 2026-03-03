@@ -25,7 +25,6 @@ Adesso prendi il cannocchiale, entra nel mio mondo e inizia a osservare.
 
 Buona lettura.
 
-1
 ## Come relazionarsi con il sesso opposto
 
 Il ruolo che le ex rivestono nella nostra vita è più complesso di quanto spesso si tenda a credere. Una relazione importante lascia inevitabilmente tracce profonde nella nostra identità, ma la sua fine pone interrogativi esistenziali che meritano una riflessione attenta.
@@ -38,7 +37,6 @@ Un tema spesso frainteso è quello della distinzione tra parità e uguaglianza d
 È importante apprendere questa distinzione, perché discipline puramente intellettuali come gli scacchi prevedano una separazione tra competizioni maschili e femminili ? 
 Relazionarsi con l’altro sesso non dovrebbe rappresentare un ostacolo o una fonte di disagio. L’obiettivo è imparare a costruire rapporti naturali, sinceri e paritari, in cui l’identità di ciascuno sia rispettata nella sua interezza. Questo tipo di maturità relazionale non si improvvisa: richiede capacità critica, volontà di crescita personale e un percorso di autoconsapevolezza che pochi sono realmente disposti a intraprendere. 
 Concludendo, la qualità delle nostre relazioni, amorose, amicali o sociali, dipende dalla nostra disponibilità a imparare e a metterci in discussione. Se vogliamo costruire una società più armoniosa e rispettosa, dobbiamo partire dall’educazione alle relazioni, fin dalla più tenera età.
-2 (2)
 ## Il potere delle emozioni
 
 Vi siete mai chiesti perché, a volte, mentre guardiamo un film o ascoltiamo una canzone che ci causa un’emozione profonda sentiamo come una scossa nel cuoio capelluto ? 
@@ -73,7 +71,6 @@ Perché piangiamo? Anche nel mondo animale esistono segnali di disagio simili: s
 Nulla è casuale, tutto ha un ruolo in natura, La felicità causa una over produzione di adrenalina, il pianto la riduce. Ecco spiegato perché quando siamo troppo felici piangiamo.
 
 Non è incredibile 
-3
 ## Il patriarcato oggi
 
 Ultimamente ho pensato spesso ai casi di femminicidio. Due notizie recenti, particolarmente atroci, mi hanno colpito. Sui social si parla molto di questo tema, e ogni volta si accende il dibattito tra uomini e donne. Quando si dice che tutti noi, uomini, facciamo parte della cultura patriarcale, la reazione più comune è quella di sentirsi colpevolizzati. Scatta subito una difesa. Perché nella mente si fa subito un collegamento diretto con quei fatti di cronaca. E ci si sente estranei. Completamente distanti da quel tipo di violenza. Quando ci dicono che siamo parte di un sistema che permette, alimenta, normalizza certi comportamenti, la prima reazione è sempre: “Io no”.
@@ -92,7 +89,6 @@ Per questo, quando una donna dice che anche noi siamo parte del sistema, la dife
 
 Abbiamo comunque contribuito, in qualche modo, a costruire una società che non tratta le donne con parità e uguaglianza. E se è così, allora è nostro compito fare qualcosa per cambiarla.
 
-4
 ## Il ruolo delle passioni nelle nostre vite
 
 Oggi stavo pensando al ruolo che hanno le passioni nelle nostre vite. Una passione è qualcosa a cui dedichiamo tanto tempo perché realizzarla ci gratifica e ci da un momento di pausa da tutto quello che ci circonda.
@@ -109,26 +105,6 @@ Le passioni , quando sono compartire, hanno anche la funzione di unirci, ci aiut
 Le passioni si possono trasmettere anche da una generazione all’altra. I nostri figli le condivideranno o semplicemente le comprenderanno.
 Le passioni creano legami tra gli individui e sono uno dei motori della vita.
 
-5 (redact)
-## Il volontariato e la solidarietà
-
-Inizio con una vicenda personale, recentemente ho scoperto un aspetto dello sport veramente affascinante: la possibilità di aiutare le persone con disabilità visiva a praticare una loro passione. Attraverso un’associazione di volontariato, ho avuto l’opportunità di accompagnare atleti non vedenti sulle piste da sci. Questo tipo di accompagnamento richiede competenze tecniche e una comunicazione continua. In caso di cecità totale, la guida utilizza un altoparlante portatile per fornire comandi vocali chiari e incessanti – come “destra ora”, “vai, vai, vai”, “sinistra ora” – permettendo all’atleta di orientarsi nello spazio attraverso la posizione della voce. In presenza di residui visivi, invece, si può utilizzare un sistema di comunicazione via cuffie o microfoni.
-Questa esperienza mi ha permesso di ammirare la determinazione e la resilienza di queste persone, spesso superiore a quella riscontrabile in chi non ha disabilità. Come sottolineato da studi di psicologia della resilienza (Masten, 2001), l’adattamento positivo a condizioni avverse è un fenomeno straordinario che coinvolge capacità di apprendimento, forza di volontà e spirito di riscatto. Ogni persona incontrata lungo questo cammino ha condiviso una storia di resistenza e riconquista, illuminando il valore della perseveranza e della fiducia in sé stessi.
-Partecipare come guida a una gara di sci rappresenta per me qualcosa di significativo: in questo contesto, lo sci, sport tradizionalmente individuale, si trasforma in una disciplina di squadra. Il successo non appartiene più soltanto all’atleta, ma alla coppia atleta-guida. Si instaura così una sintonia straordinaria, un legame fondato sulla fiducia totale e sulla comunicazione impeccabile. Questo tipo di cooperazione richiama il concetto di interdipendenza positiva teorizzato da Johnson e Johnson (1989) nelle dinamiche di gruppo, secondo cui i membri di una squadra raggiungono insieme il successo proprio attraverso il supporto reciproco.
-
-Tale esperienza mi conduce a riflettere sull’importanza del volontariato come percorso di realizzazione personale e di crescita. Nella società contemporanea, spesso si tende a identificare il valore dell’individuo con i risultati professionali o materiali ottenuti. Tuttavia, come osservato da Putnam (2000) nella sua opera Bowling Alone, la partecipazione attiva in comunità di volontariato incrementa significativamente il capitale sociale, migliorando non solo la qualità della vita collettiva, ma anche il benessere personale.
-Il volontariato, in questo senso, dovrebbe essere promosso e insegnato fin dall’infanzia, come parte integrante della formazione civica. L’educazione all’empatia, alla solidarietà e alla consapevolezza della vulnerabilità umana non solo arricchisce la società, ma costituisce anche una forma autentica di crescita individuale. La vulnerabilità, infatti, ci accomuna tutti: nessuno sceglie le proprie condizioni di partenza nella vita. Come evidenzia Martha Nussbaum (2006) nel suo lavoro sui diritti umani, la consapevolezza della nostra fragilità dovrebbe condurre non alla separazione, bensì all’inclusione e alla compassione.
-La cecità, così come altre forme di disabilità, non definisce la persona né la rende diversa. Al contrario, evidenzia l’essenza condivisa della nostra condizione umana: la vulnerabilità. Chi riesce a riscattarsi da condizioni difficili spesso manifesta una forza straordinaria, una capacità di adattamento e una resilienza che possono diventare esempio per tutti. In questo senso, il supporto ai più fragili non è soltanto un atto di generosità, ma un riconoscimento della nostra comune appartenenza.
-Questo ragionamento può essere esteso ad altri contesti di fragilità sociale, come le migrazioni o la povertà. La disuguaglianza delle condizioni di partenza, spesso frutto del caso o del destino, non dovrebbe mai costituire una barriera morale tra le persone. Al contrario, come suggerisce Amartya Sen (1999) nel concetto di “capability approach”, il vero progresso umano consiste nel creare le condizioni affinché ciascun individuo possa sviluppare il proprio potenziale.
-Chi ha lottato per ogni piccolo risultato, chi ha affrontato difficoltà sistemiche o fisiche, ha acquisito una resilienza e una capacità di innovazione che, se sostenute e valorizzate, possono realmente contribuire a trasformare la società. Investire sulle persone che hanno dimostrato di saper combattere è investire su un futuro più equo e dinamico.
-Attraverso l’esperienza come guida nello sci per non vedenti, ho imparato che l’aiuto reciproco non è solo un dovere etico, ma una forma superiore di realizzazione personale e collettiva. La solidarietà non ci impoverisce: ci eleva.
-
-Questa esperienza conferma come lo sport inclusivo possa diventare un potente strumento di integrazione sociale e crescita personale. Il concetto di resilienza, spesso studiato in psicologia (Bonanno, 2004), trova qui un’applicazione concreta: l’abilità di queste persone di adattarsi e prosperare in contesti sfidanti è un esempio di forza interiore e determinazione.
-Inoltre, il concetto di “sport di coppia” in questo contesto sottolinea l’importanza della fiducia reciproca e della comunicazione efficace. Questo principio è stato esplorato in numerosi studi sul lavoro di squadra e sulla leadership (Kozlowski & Ilgen, 2006), evidenziando come il successo di un team dipenda dalla capacità di costruire un legame di collaborazione e supporto reciproco.
-L’importanza del volontariato e della solidarietà, come percorso di realizzazione personale e collettiva, è stata ampiamente documentata nella letteratura sociologica (Wilson, 2000). Il volontariato non solo arricchisce chi riceve l’aiuto, ma trasforma profondamente anche chi lo offre, offrendo un senso di scopo e appartenenza.
-Infine, il riconoscimento dell’uguaglianza nella vulnerabilità umana, come sottolineato da filosofi come Judith Butler (2004), dovrebbe essere il fondamento di una società più empatica e inclusiva. Riconoscere che la nostra condizione di partenza è spesso frutto del caso dovrebbe spingerci a sviluppare una maggiore empatia e solidarietà verso chi affronta sfide maggiori.
-In conclusione, la mia partecipazione come guida in una gara di sci per non vedenti non è solo un’esperienza sportiva, ma un viaggio di crescita personale e di riflessione sul valore della cooperazione, della resilienza e dell’empatia.
-6 (5)
 ## Una vita / mille futuri
 
 In questo capitolo vorrei soffermarmi su quanto sia affascinante il fatto che nella nostra vita esistano mille futuri diversi. Ogni azione che compiamo oggi apre le porte a un futuro distinto, e nel passato abbiamo già vissuto uno specifico futuro, ma avrebbero potuto esisterne tanti altri.
@@ -139,7 +115,6 @@ A volte il futuro può essere benevolo con noi, altre volte no. Supponiamo che a
 È vero che alcuni eventi nella nostra vita accadono per caso, ma così come non credo nel destino, non credo nemmeno nella fortuna intesa come qualcosa di esterno e indipendente da noi. Certo, le circostanze possono essere favorevoli o sfavorevoli, ma alla fine siamo noi a dover esplorare i possibili futuri. Se rimaniamo immobili, il nostro futuro sarà solo un’estensione monotona del presente. Ma se immaginiamo la vita come un albero pieno di rami, possiamo scegliere se restare sempre sullo stesso ramo o se esplorare nuove direzioni.
 Più rami esploriamo, più futuri diversi viviamo, più possibilità abbiamo di trovare quello che ci rende davvero felici. Se qualcosa non va, possiamo cambiare strada, provare ancora, sperimentare. Dobbiamo avere il coraggio di farlo, nei limiti delle nostre possibilità, perché restare fermi significa condannarsi a una vita statica, senza evoluzione.
 Essere passivi significa lasciare che il tempo scorra senza di noi. Invece, dovremmo essere parte attiva del tempo, costruire consapevolmente il nostro futuro, prendere decisioni, osare. Solo così possiamo vivere una vita dinamica e, forse, trovare la felicità.
-7 (6)
 ## Lasciamo libera la nostra immaginazione ?
 
 Non so se vi è mai capitato di chiudere gli occhi e immaginarvi in un altro mondo, in una vita parallela, completamente diversa da quella che vivete nel presente. A me succedeva spesso da bambino: mi rifugiavo in mondi inventati, costruiti nella mia mente, come un modo per passare il tempo e staccare dalla realtà. Oggi mi capita meno frequentemente, ma ancora lo faccio, e ogni volta è un’esperienza preziosa.
@@ -154,7 +129,6 @@ E in fondo, proprio perché lo facevamo da bambini, è giusto che continuiamo a 
 Il nostro “io” bambino ci accompagna per tutta la vita, da adulti impariamo a controllarlo, alziamo delle mura e lo racchiudiamo per nasconderlo.
 Il rischio è di dimenticarsi di lui, se lo fai sei morto ancora primo a di morire. Ricordati di lui, prenditene cura, controllalo ma non ti dimenticare che ha bisogno di sfogarsi.
 
-8 (3)
 ## Quando è giusto piangere ?
 
 Vi è mai capitato di sentirvi tristi, di lasciar scendere una lacrima e, subito dopo sentirvi in colpa per quel pianto? A me sì. E più di una volta.
@@ -167,23 +141,6 @@ Il pianto non è solo dolore, è anche liberazione. È il riconoscimento di un�
 Perché, se accettiamo di poter essere felici anche quando c’è qualcuno che sta meglio di noi, allora dobbiamo accettare di poter essere tristi anche quando c’è qualcuno che soffre di più. Non possiamo negare a noi stessi il diritto di provare emozioni solo perché qualcun altro potrebbe viverle in modo più intenso. Il dolore non è una gara.
 Quindi sì, se hai bisogno di piangere, piangi. Non c’è alcuna vergogna, nessun senso di colpa da provare. Perché, alla fine, ci sarà sempre un problema più grande, una sofferenza più profonda. Ma questo non significa che la tua non sia reale, non sia valida.
 E se piangere ti aiuta a sentirti meglio, allora fallo. Ne hai il diritto.
-9 (redact)
-## Come evolviamo
-
-Riporto qui alcune note che scrissi nel 2024.
-“Oggi è un giorno particolare. Mi sono svegliato con un senso di… non so, solitudine. È vero che sento il bisogno di avere una persona vicina, però allo stesso tempo mi rendo conto di quanto sia difficile trovare qualcuno che riesca davvero a farmi innamorare, no? E magari non so nemmeno quale sia la ragione di tutto questo. Probabilmente è legato al fatto che la mia ultima relazione mi ha lasciato un po’ traumatizzato. È come se avessi perso la capacità di credere nell’amore.
-Adesso mi trovo in una situazione in cui, sì, provo attrazione fisica per le persone, ma non riesco più a sentire quella scintilla, quel sentimento, quella cosa che ti fa sentire le farfalle nello stomaco, quelle che provavo da ragazzino o che comunque ho provato fino a qualche anno fa. Ora è veramente difficile trovarle”
-Oggi rileggendo questo rifletto su come cambiamo nel corso della nostra vita. Non sono più lo stesso di dieci anni fa, nemmeno quello di cinque anni fa. Mi sento completamente diverso, quasi un’altra persona. Onestamente, mi sento un po’ perso dentro di me. Non riesco più a capire quale sia la mia identità o chi sono davvero. Per non sentire questo vuoto, cerco di riempire ogni momento.
-Una delle cose che mi aiuta tantissimo è lo sport, una passione che ho scoperto da poco. Mi piace tantissimo, perché mi permette di scoprire i miei limiti e di superarli. Riesco a fare cose che non avrei mai immaginato di poter fare. Mi dà una grande soddisfazione. Ad esempio, sono migliorato tantissimo negli esercizi, ho imparato lo sci, il wakeboard, lo snowboard… sono esperienze fantastiche e mi danno tanta gioia.
-Tuttavia, penso che quello che sta succedendo sia che dedico la maggior parte del mio tempo a riempire questi vuoti e non riesco a trovare quel bilanciamento necessario. Lo sport mi piace tantissimo, ma sento che manca un equilibrio tra questa nuova passione, la ricerca della mia identità e il lavoro.
-Non sto dicendo che non lavoro, però la passione che ho sempre avuto per l’informatica sembra affievolirsi un po’. Non è che non mi piaccia più programmare, ma stare davanti al computer a scrivere codice mi riporta in quella sensazione di solitudine: solo io e il computer. E forse tutto questo non mi aiuta.
-è un giorno particolare. Mi sono svegliato con un senso di… non so, solitudine. È vero che sento il bisogno di avere una persona vicina, però allo stesso tempo mi rendo conto di quanto sia difficile trovare qualcuno che riesca davvero a farmi innamorare, no? E magari non so nemmeno quale sia la ragione di tutto questo. Probabilmente è legato al fatto che la mia ultima relazione mi ha lasciato un po’ traumatizzato. È come se avessi perso la capacità di credere nell’amore.
-Adesso mi trovo in una situazione in cui, sì, provo attrazione fisica per le persone, ma non riesco più a sentire quella scintilla, quel sentimento, quella cosa che ti fa sentire le farfalle nello stomaco, quelle che provavo da ragazzino o che comunque ho provato fino a qualche anno fa. Ora è veramente difficile trovarle.
-È anche vero che sono cambiato tantissimo come persona. Non sono più lo stesso di dieci anni fa, nemmeno quello di cinque anni fa. Mi sento completamente diverso, quasi un’altra persona. Onestamente, mi sento un po’ perso dentro di me. Non riesco più a capire quale sia la mia identità o chi sono davvero. Per non sentire questo vuoto, cerco di riempire ogni momento.
-Una delle cose che mi aiuta tantissimo è lo sport, una passione che ho scoperto da poco. Mi piace tantissimo, perché mi permette di scoprire i miei limiti e di superarli. Riesco a fare cose che non avrei mai immaginato di poter fare. Mi dà una grande soddisfazione. Ad esempio, sono migliorato tantissimo negli esercizi, ho imparato lo sci, il wakeboard, lo snowboard… sono esperienze fantastiche e mi danno tanta gioia.
-Tuttavia, penso che quello che sta succedendo sia che dedico la maggior parte del mio tempo a riempire questi vuoti e non riesco a trovare quel bilanciamento necessario. Lo sport mi piace tantissimo, ma sento che manca un equilibrio tra questa nuova passione, la ricerca della mia identità e il lavoro.
-Non sto dicendo che non lavoro, però la passione che ho sempre avuto per l’informatica sembra affievolirsi un po’. Non è che non mi piaccia più programmare, ma stare davanti al computer a scrivere codice mi riporta in quella sensazione di solitudine: solo io e il computer. E forse tutto questo non mi aiuta.
-10
 ## A volte ci tappiamo gli occhi ?
 
 Oggi sento il bisogno di riflettere sul ruolo che noi, cittadini del cosiddetto “primo mondo”, abbiamo nel contesto globale e sulle profonde disuguaglianze che ancora esistono tra uno Stato e l’altro. Mi metto in discussione, prima di tutto. Anche io sono colpevole di disinteressarmi, troppo spesso, di ciò che accade nel resto del mondo. Vivo in una parte privilegiata del pianeta, dove le preoccupazioni quotidiane sono spesso futili, scollegate dalla sofferenza e dalla miseria che milioni di persone affrontano ogni giorno.
@@ -197,7 +154,6 @@ Non voglio generalizzare. So che esistono persone consapevoli, attive, che si im
 È facile indignarsi per ciò che è visibile: un video di un animale maltrattato, la plastica negli oceani, l’Amazzonia che brucia. Ma molto più difficile è accettare che la nostra vita quotidiana è profondamente intrecciata alla sofferenza invisibile di milioni di persone. E lo è. Quando una madre rischia la propria vita attraversando il Mediterraneo con un figlio in braccio, lo fa perché dall’altra parte non c’è futuro, non c’è dignità, non c’è sopravvivenza. Rischia la morte perché l’alternativa è già una condanna.
 È vero, accogliere tutti non è semplice. I flussi migratori vanno gestiti con intelligenza, equilibrio, rispetto. Ma allora perché non fare di più per aiutarli lì, dove sono? Perché non investire in istruzione, sanità, infrastrutture nei paesi più poveri invece di sfruttarli economicamente e abbandonarli quando non servono più?
 Credo che tutto parta dalla consapevolezza. Non possiamo risolvere tutto, ma possiamo fare molto più di quello che facciamo oggi. Possiamo scegliere di consumare meno e meglio, possiamo sostenere progetti di cooperazione internazionale, possiamo informare e sensibilizzare chi ci sta intorno. Le grandi aziende temono, più di ogni altra cosa, il danno d’immagine: se iniziamo a chiedere con forza trasparenza, etica, sostenibilità, loro saranno costrette ad ascoltare.
-11
 ## Le diverse fasi della vita
 
 Il cambiamento non avverrà da solo. Dobbiamo volerlo, dobbiamo parlarne, dobbiamo lottare. E dobbiamo, prima di tutto, smettere di vivere da ciechi. Aprire gli occhi su ciò che non vogliamo vedere è il primo atto di giustizia.
@@ -206,7 +162,6 @@ Prima dell’adolescenza ci sono altre tappe: la nascita, l’infanzia, e quel p
 Guardandoci indietro, possiamo osservare quanto siamo cambiati in ogni fase della nostra vita. Probabilmente, ognuno di noi si percepisce come una persona diversa rispetto a dieci anni fa. L’“io” di oggi non è lo stesso di quello di vent’anni, e quasi certamente non sarà lo stesso tra dieci anni. Le nostre percezioni del mondo cambiano, così come le passioni, i modi di trascorrere il tempo e le priorità. Ad esempio, il carattere che avevamo a vent’anni potrebbe essere profondamente diverso da quello attuale.
 Questo cambiamento continuo si riflette anche nelle relazioni. Spesso, le persone attraversano fasi della vita con partner diversi, perché nel tempo possono evolversi in direzioni opposte. Quando i bisogni e le priorità cambiano, è naturale che alcune relazioni finiscano e ne comincino di nuove. È importante capire che non è necessariamente un fallimento, ma una conseguenza dell’evoluzione personale. Crescere significa adattarsi e, a volte, intraprendere strade diverse.
 Pensate, ad esempio, al primo amore, quello che molti vivono da adolescenti. A quell’età, l’amore è puro, totalizzante. Chi ha avuto una relazione lunga iniziata in gioventù sa quanto possa essere speciale. Tuttavia, quando si cresce, le esigenze cambiano, le personalità si trasformano, e ciò che un tempo era perfettamente compatibile può non esserlo più. Tra i 16 e i 23 anni, ad esempio, i cambiamenti personali possono essere così profondi che un rapporto nato in quella.
-12
 ## Imparare una nuova lingua
 
 Imparare una lingua straniera non è mai semplice, soprattutto all’inizio, quando sembra difficile trovare il metodo giusto. Ognuno di noi ha esigenze diverse, e per questo è importante esplorare diverse strade fino a capire quale funziona meglio per noi. Personalmente, ho trovato estremamente complicato imparare l’inglese all’inizio, ma col tempo sono riuscito a padroneggiarlo. Oggi lo uso quotidianamente, lavorando in un’azienda americana, ma il mio percorso non è stato lineare.
@@ -218,7 +173,6 @@ Una riflessione importante riguarda il modo in cui impariamo da bambini. Nessuno
 Ovviamente, questo metodo potrebbe non funzionare per tutti, ma se la grammatica pura non vi ha dato risultati, vi consiglio di provare un approccio più pratico. La conoscenza dell’inglese, oggi più che mai, è imprescindibile, e trovare il metodo giusto per voi può fare la differenza.
 
 Spero che il mio percorso e i miei consigli possano esservi utili. Imparare una lingua è un viaggio, ma una volta trovata la strada giusta, i risultati arriveranno.
-13
 ## Viaggiare da soli
 
 Viaggiare da soli è senza dubbio un’esperienza particolare. Pensateci: quando vi è capitato di viaggiare da soli? A volte può succedere perché non si ha avuto il tempo di organizzare con gli amici, oppure il viaggio è stato deciso all’ultimo minuto, senza possibilità di avvisare e coinvolgere altre persone. Altre volte, invece, è semplicemente un piano che interessa solo a noi.
@@ -226,7 +180,6 @@ Quando ci troviamo a decidere se intraprendere un viaggio in solitaria, è sempr
 Parlando della mia esperienza, mi è successo spesso di viaggiare da solo, soprattutto per fare sport. Ad esempio, quando vado sulle Alpi partendo dalla Spagna o organizzo una sessione di surf, mi capita di non avere un gruppo con cui condividere l’esperienza e di partire in solitaria. Questo tipo di viaggio è davvero unico: ti permette di stare con te stesso, di riflettere e di uscire dalla routine quotidiana, immergendoti in un ambiente completamente nuovo. È un’occasione speciale per conoscersi meglio e rigenerarsi.
 Dopo un periodo difficile, prendere una settimana per staccare la mente può essere la cosa migliore. Se poi si ha la possibilità di lavorare in smart working, ancora meglio: non si tratta necessariamente di una vacanza, ma di un cambio di scenario che aiuta a rinnovare la prospettiva. Noi esseri umani, infatti, abbiamo bisogno di vedere e sperimentare cose nuove. La routine, per quanto confortevole, può diventare soffocante, e un viaggio in un luogo diverso può essere davvero rinfrescante.
 Tuttavia, è importante considerare i limiti. Se il viaggio in solitaria si prolunga troppo e non si riescono a creare nuove connessioni o amicizie, la solitudine può diventare un problema. Per questo motivo, credo che sia fondamentale bilanciare il tempo trascorso da soli. Una settimana è generalmente gestibile, ma se il periodo si prolunga, bisogna pensarci bene e valutare le proprie esigenze. La chiave sta nel trovare un equilibrio: godere della libertà del viaggio da soli senza lasciare che il senso di isolamento prenda il sopravvento.
-14
 ## Le app d’incontri
 
 Oggi riflettevo sulle app di incontri e su come abbiano trasformato il modo in cui conosciamo le persone e viviamo le relazioni. Così come l’accesso ai contenuti è diventato esponenzialmente più facile, lo stesso è accaduto con l’accesso alle persone. Se pensiamo al passato, i luoghi principali per incontrare l’anima gemella erano la scuola, il lavoro, o magari la chiesa. Racconti romantici dei nostri nonni parlano spesso di incontri casuali in contesti quotidiani. Di certo, non online.
@@ -239,7 +192,6 @@ Le app di incontri hanno influenzato anche il modo in cui viviamo la sessualità
 
 Ma questa abbondanza ha il suo lato oscuro. Ci ha resi impazienti. Appena notiamo un difetto in qualcuno, siamo pronti a scartarlo, convinti che, con così tante opzioni a disposizione, ci sarà sempre di meglio. Inseguiamo una perfezione che forse non esiste, alimentata da un’idea ideale costruita nella nostra mente. E così, nella ricerca continua, rischiamo di non essere mai soddisfatti, saltando da una conoscenza all’altra senza mai fermarci davvero.
 In definitiva, il modo in cui incontriamo le persone è cambiato radicalmente. Le app di incontri ci offrono opportunità incredibili, ma ci pongono anche di fronte a nuove sfide. Ci spingono a riflettere su cosa vogliamo davvero e su quanto siamo disposti a investire per costruire una connessione autentica.
-15
 ## Il contesto conta
 
 Questo fine settimana di Pasqua ho risentito, dopo tanto tempo, una sensazione che credevo quasi dimenticata: un’attrazione intensa, profonda, autentica. Non c’erano le circostanze per avvicinarsi, per tentare una conoscenza, eppure bastava starle accanto per sentire qualcosa muoversi dentro.
@@ -251,7 +203,6 @@ Il rischio è mettere l’altra persona a disagio. Pensiamo di poterlo capire in
 Mi è successo di recente con BlaBlaCar. Accompagnavo una ragazza che mi piaceva molto. Abbiamo parlato, condiviso riflessioni, e alla fine del viaggio ho tentato di avvicinarmi un po’. Solo dopo mi sono accorto del disagio. Il suo rifiuto non era solo un “no”, era un confine. E io l’avevo superato senza volerlo.
 Pensavo ci fosse una minima reciprocità. Invece no. E ho sbagliato. L’ho messa a disagio. Noi uomini spesso non viviamo certe situazioni e non riconosciamo subito quella sensazione di vulnerabilità che possiamo suscitare. Credevo di saper leggere i segnali. Ma non è andata così.
 
-16
 ## Vivere lontano da casa
 
 Ho vissuto in diversi paesi: sei mesi in Svezia, oltre cinque anni in Inghilterra, e da quasi tre anni mi trovo in Spagna. Da siciliano, un italiano del sud, ho sempre cercato di comprendere e adattarmi alle culture in cui mi sono immerso. Oggi voglio riflettere sulle differenze che ho notato tra questi tre paesi, soprattutto dal punto di vista socioculturale.
@@ -268,7 +219,6 @@ Questi anni all’estero mi hanno arricchito profondamente. Ho imparato che ogni
 Questa esperienza mi ha fatto male, ma mi ha anche insegnato. Possiamo trovare qualcuno interessante, sentire attrazione, ma dobbiamo chiederci: è il momento giusto? Il contesto lo permette? Possiamo davvero avvicinarci senza creare disagio?
 Un complimento, in certi ambienti, può risultare pesante. In discoteca può essere accolto con un sorriso. Sul lavoro, in un contesto serio, può diventare un obbligo, qualcosa che chi lo riceve si sente costretto ad accettare, anche se non vuole.
 Alla fine, ciò che conta è la consapevolezza. Non basta quello che sentiamo. Dobbiamo imparare a leggere anche ciò che ci circonda
-17
 ## I social network
 
 Oggi mi trovo a riflettere sui social network e su quanto siamo diventati dipendenti da essi. È una schiavitù sottile, che si insinua nella nostra vita senza che ce ne rendiamo conto. Pensa a quante volte la mattina, appena svegli, o la sera, prima di andare a dormire, ci ritroviamo a scorrere i feed. E non solo: ogni momento morto, che sia in fila dal dottore o alla posta, lo riempiamo guardando lo schermo del telefono. Non siamo più capaci di stare senza far nulla.
@@ -277,14 +227,12 @@ Anche io faccio fatica a staccarmi dal telefono. I momenti in cui non è present
 C’è poi un altro aspetto interessante: il nostro bisogno di condividere la vita sui social. Questo diventa particolarmente evidente nei momenti di solitudine. Quando viaggio da solo, ad esempio, mi accorgo di condividere molto di più. Scatto foto, pubblico storie, racconto quello che vedo. È come se sentissi il bisogno di riempire quel vuoto con una connessione digitale, anche se non vedo direttamente le persone a cui mi rivolgo.
 Al contrario, quando viaggio con qualcuno, magari un partner, quel bisogno si riduce. Vivere il momento con una persona accanto mi basta. La condivisione avviene lì, in carne e ossa, e non sento l’urgenza di mostrarlo al mondo. Questo mi fa pensare che il nostro rapporto con i social sia strettamente legato al contesto emotivo in cui ci troviamo. Nei momenti di solitudine, i social diventano uno strumento per sentirci meno isolati, mentre nei momenti di appagamento personale e relazionale, perdono di importanza.
 Forse la chiave è proprio questa: trovare un equilibrio. Capire quando usarli e quando metterli da parte per vivere il momento. Non è facile, ma credo che riflettere su questi aspetti possa aiutarci a costruire un rapporto più sano con i social network e, in fondo, anche con noi stessi.
-18
 ## Ammirare o essere ammirati
 
 È necessario ammirare qualcosa in una persona per potersi innamorare di lei? È proprio su questo che sto riflettendo oggi. Effettivamente, sì, tutte le volte che ho provato un sentimento forte era perché ammiravo quella persona per qualche motivo. Però, può questo essere sufficiente a costruire o creare l’amore? È giusto che l’amore si basi solo su questo? L’ammirazione per una qualità può essere un punto di partenza, quel “trigger” iniziale, ma quando ci si abitua a quella qualità, a quelle caratteristiche della persona, può davvero bastare a costruire una relazione solida?
 In questo momento mi trovo in una situazione di grande confusione. Devo ammettere che sono uscito con molte persone, ma non ho più provato quella fiamma che si accende dentro. Non lo so, forse perché manca proprio quell’ammirazione. Le persone ormai mi sembrano tutte uguali, e faccio fatica a trovare qualcuno che mi accenda davvero quella scintilla interiore. Questo mi porta a dubitare di me stesso. Sono io che sono diventato una persona superficiale, incapace di vedere le qualità nelle persone, di innamorarmi delle piccole cose?
 Una riflessione che mi capita spesso è che, per esempio, mi affascinano molto le ragazze che praticano sport su Instagram, al punto che a volte scrivo loro. Però mi chiedo: è qualcosa che dovrebbe affascinare? È superficiale? Eppure nasce da un’ammirazione, in questo caso per il fatto che siano brave in quello che fanno. Ma può davvero essere giusto che questo sia il fattore scatenante di una passione, di un interesse? Oppure dovremmo imparare a ritrovare l’amore nelle piccole cose, nei piccoli gesti quotidiani? Non lo so. Chiudo questa riflessione con molta confusione, ma con il desiderio di capire meglio.
 
-19
 ## Diario di un infatuazione
 
 Oggi scrivo una pagina di diario, più che un capitolo. Una pagina personale, per raccontare ciò che mi è successo questa settimana. Ho provato una voglia d’amore. Una voglia semplice e immensa, che arriva senza chiedere permesso. C’era una persona — non voglio dare troppi dettagli, perché non vorrei che potesse riconoscersi. L’avevo vista solo da lontano, avevamo interagito poco, sempre in un contesto professionale. Avevamo interessi in comune, tra cui il surf. Ma viveva a diecimila chilometri di distanza. Per me è una delle ragazze più belle che io abbia mai conosciuto. Bella in modo oggettivo, sì, ma soprattutto bella per me. Di quella bellezza che ti parla dentro, che non riesci a spiegare. Non pensavo che l’avrei mai conosciuta davvero E invece, questa settimana, è successo E devo dire che è molto meglio di come l’avevo immaginata. Già la immaginavo bella, ma non sapevo com’era parlarle. Stando vicino a lei ho sentito qualcosa di speciale — una calma, una sintonia che non so descrivere.
