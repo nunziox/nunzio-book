@@ -17,7 +17,7 @@ git add -A
 
 4. Generate the PDF by running:
 ```
-./readme_to_book.sh
+./pandoc_to_pdf.sh
 ```
 
 Show the output of each step clearly. If any step fails, stop and report the error.
