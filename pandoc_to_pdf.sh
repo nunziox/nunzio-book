@@ -2,7 +2,7 @@
 set -euo pipefail
 
 # Include user-local bin (e.g. manually installed pandoc)
-export PATH="$HOME/bin:$HOME/Library/Python/3.9/bin:$PATH"
+export PATH="/opt/homebrew/bin:$HOME/bin:$HOME/Library/Python/3.9/bin:$PATH"
 
 INPUT="book.md"
 OUTPUT="La_vita_dentro_noi_stessi.pdf"
