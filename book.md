@@ -168,11 +168,7 @@ Non è raro osservare, anche in età adulta, la tendenza a mantenere gruppi soci
 
 Un tema spesso frainteso è quello della distinzione tra parità e uguaglianza di genere. Come mi è stato fatto notare da una cara amica, “parità” implica trattare tutti allo stesso modo, senza considerare le differenze biologiche; “uguaglianza”, invece, significa offrire pari opportunità tenendo conto delle diverse esigenze derivanti da caratteristiche innate. Ad esempio, nel campo della maternità o delle prestazioni sportive, riconoscere queste differenze è essenziale per garantire equità reale.
 
-È importante apprendere questa distinzione: perché discipline puramente intellettuali come gli scacchi prevedono una separazione tra competizioni maschili e femminili ?
-
-Relazionarsi con l’altro sesso non dovrebbe rappresentare un ostacolo o una fonte di disagio. L’obiettivo è imparare a costruire rapporti naturali, sinceri e paritari, in cui l’identità di ciascuno sia rispettata nella sua interezza. Questo tipo di maturità relazionale non si improvvisa: richiede capacità critica, volontà di crescita personale e un percorso di autoconsapevolezza che pochi sono realmente disposti a intraprendere.
-
-Concludendo, la qualità delle nostre relazioni, amorose, amicali o sociali, dipende dalla nostra disponibilità a imparare e a metterci in discussione. Se vogliamo costruire una società più armoniosa e rispettosa, dobbiamo partire dall’educazione alle relazioni, fin dalla più tenera età.
+L’obiettivo è imparare a costruire rapporti paritari, in cui l’identità di ciascuno sia rispettata nella sua interezza. Questo tipo di maturità relazionale non si improvvisa: richiede capacità critica, volontà di crescita personale e un percorso di autoconsapevolezza che dobvrebbe iniziare durante l'infanzia.
 
 ## Il patriarcato oggi
 
