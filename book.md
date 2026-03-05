@@ -8,19 +8,19 @@ date: "2024"
 
 Questo libro inizialmente nasceva come un diario, ma alla fine è una raccolta: di riflessioni, di emozioni scritte tra alti e bassi, di pensieri e piccoli frammenti di vita di un trentaquattrenne. 
 
-Non c’è una trama, puoi leggerlo in qualsiasi ordine, ogni capitolo affronta un argomento differente, non ci sono verità assolute. Ci sono io, la mia vita di tutti i giorni, le mie giornate fatte di momenti di silenzio e rumore, e una voglia crescente di mettere per iscritto quello che tengo dentro.
+Non c’è una trama, puoi leggerlo in qualsiasi ordine, ogni capitolo affronta un argomento differente, non troverai verità assolute. Ci sono io e la mia voglia crescente di mettere per iscritto quello che tengo dentro.
 
-L’idea di questo libro è semplice: condividere. Non ho intenzione di darvi risposte, né di offrirvi ricette per la felicità o di dirvi cosa sia giusto o sbagliato. Questo non è un manuale per vivere meglio, né tantomeno un manifesto esistenziale. È, piuttosto, una finestra sulla mia quotidianità, sul mio modo di vedere il mondo e di affrontare quella che io chiamo la vita dentro noi stessi.
+L’idea di questo libro è semplice: condividere. Non ho intenzione di darvi risposte, né di offrirvi ricette per la felicità o di dirvi cosa sia giusto o sbagliato. Questo non è un manuale per vivere meglio o per sapere cosa fare in qualsiasi situazione. È, piuttosto, una finestra sul mio modo di vedere il mondo e di affrontare quella che io chiamo la vita dentro noi stessi.
 
-La vita dentro noi stessi è un’espressione che mi piace, perché racchiude la definizione della nostra esistenza. Una visione che ci siamo costruiti negli anni e che custodiamo nei luoghi più intimi. Contiene la nostra visione delle dinamiche sociali, i nostri desideri, i nostri traumi, i nostri punti di forza e le nostre debolezze. La vita dentro di noi è il nostro manuale di istruzioni, quando lo consegniamo a qualcuno, gli consegniamo le chiavi del nostro mondo.
+La vita dentro noi stessi è un’espressione che mi piace, perché racchiude la definizione di vita che abbiamo plasmato nel corso della nostra esistenza e che custodiamo dentro noi stessi, nel luogo più intimo. Contiene la nostra visione delle dinamiche sociali, i nostri desideri, i nostri traumi, i nostri punti di forza e le nostre debolezze. La vita dentro di noi è il nostro manuale di istruzioni, quando lo consegniamo a qualcuno, gli consegniamo le chiavi del nostro mondo.
 
 A 34 anni mi trovo in uno di quei momenti della vita in cui tutto sembra fluido. Non ho legami fissi, non ho vincoli da rispettare, e mi sono concesso la libertà di fermarmi e osservare. Ecco, questo libro è anche questo: uno spazio per osservare, riflettere, e respirare.
 
-Ogni capitolo che leggerai è nato in una giornata precisa, da un momento, da un umore. Non ho seguito un filo logico; ho seguito il flusso delle mie giornate. Alcuni capitoli sono leggeri, quasi ironici, altri sono più intensi, più intimi. Tutto dipende da come mi sentivo mentre scrivevo. A volte ero malinconico, altre volte entusiasta. A volte mi sentivo brillante, altre totalmente vuoto. E credo che questa altalena sia l’essenza di ciò che voglio raccontarti: la vita non è mai lineare.
+Ogni capitolo che leggerai è nato in una giornata precisa, da un momento, da un umore. Non ho seguito un filo logico; ho seguito il flusso delle mie giornate. Alcuni capitoli sono leggeri, quasi ironici, altri sono più intensi, più intimi. Tutto dipende da come mi sentivo mentre scrivevo. A volte ero malinconico, altre volte entusiasta. A volte mi sentivo pieno di energia, altre totalmente vuoto, senza forza.
 
 Scrivere è stato per me una forma di terapia, un modo per mettere ordine nel caos dei pensieri. Ma questo libro non è solo mio. È anche per te. Se leggerai queste pagine, spero che tu possa trovare qualcosa che ti parli, che ti faccia pensare. Magari ti ritroverai in qualche riflessione o ti farai una domanda che non ti eri mai posto. Ecco, il mio obiettivo non è insegnarti nulla, ma accompagnarti in un viaggio di pensieri. 
 
-Adesso prendi il cannocchiale, entra nel mio mondo e inizia a osservare.
+Adesso prendi il cannocchiale, entra nei miei pensieri e inizia a osservare.
 
 Buona lettura.
 

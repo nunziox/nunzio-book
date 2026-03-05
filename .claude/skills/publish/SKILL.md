@@ -15,9 +15,9 @@ git add -A
 
 3. Push to origin main.
 
-4. Generate the PDF by running:
+4. Generate both the Italian and Spanish PDFs by running:
 ```
-./pandoc_to_pdf.sh
+./pandoc_to_pdf.sh --ita --spa
 ```
 
 Show the output of each step clearly. If any step fails, stop and report the error.
