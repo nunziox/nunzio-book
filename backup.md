@@ -1,0 +1,56 @@
+## Ammirare o essere ammirati
+
+È necessario ammirare qualcosa in una persona per potersi innamorare di lei? È proprio su questo che sto riflettendo oggi. Effettivamente, sì, tutte le volte che ho provato un sentimento forte era perché ammiravo quella persona per qualche motivo. Però, può questo essere sufficiente a costruire o creare l'amore? È giusto che l'amore si basi solo su questo? L'ammirazione per una qualità può essere un punto di partenza, quel "trigger" iniziale, ma quando ci si abitua a quella qualità, a quelle caratteristiche della persona, può davvero bastare a costruire una relazione solida?
+
+In questo momento mi trovo in una situazione di grande confusione. Devo ammettere che sono uscito con molte persone, ma non ho più provato quella fiamma che si accende dentro. Non lo so, forse perché manca proprio quell'ammirazione. Le persone ormai mi sembrano tutte uguali, e faccio fatica a trovare qualcuno che mi accenda davvero quella scintilla interiore. Questo mi porta a dubitare di me stesso. Sono io che sono diventato una persona superficiale, incapace di vedere le qualità nelle persone, di innamorarmi delle piccole cose?
+
+Una riflessione che mi capita spesso è che, per esempio, mi affascinano molto le ragazze che praticano sport su Instagram, al punto che a volte scrivo loro. Però mi chiedo: è qualcosa che dovrebbe affascinare? È superficiale? Eppure nasce da un'ammirazione, in questo caso per il fatto che siano brave in quello che fanno. Ma può davvero essere giusto che questo sia il fattore scatenante di una passione, di un interesse? Oppure dovremmo imparare a ritrovare l'amore nelle piccole cose, nei piccoli gesti quotidiani? Non lo so. Chiudo questa riflessione con molta confusione, ma con il desiderio di capire meglio.
+
+## Il contesto conta
+
+Riporto alcuni appunti del mio diario, sì a volte scrivo: questa settimana ho risentito, dopo tanto tempo, una sensazione che credevo quasi dimenticata: un'attrazione intensa, profonda, autentica. Non c'erano le circostanze per avvicinarsi, per tentare una conoscenza, eppure bastava starle accanto per sentire qualcosa muoversi dentro.
+
+C'era una calma disarmante nei suoi occhi. Il suo naso, non perfetto forse, ma proprio per questo ancora più bello: irregolare come certe cose vere, che ti rimangono impresse perché non cercano di essere altro.
+
+Quello che mi ha colpito davvero non è stato un gesto, né una parola: è stato sentire qualcosa. Dopo tanto tempo. Da mesi uscivo, frequentavo app di incontri, ma tutto rimaneva piatto. Con lei, anche solo per un attimo, ho risentito una scintilla. E come tutte le scintille mi ha fatto sentire vivo, capace di provare sentimenti.
+
+Tuttavia niente di tutto questo aveva senso, perché lei era lì con il suo fidanzato. Non potevo fare niente, ma ero comunque felice vedendo quell'amore manifestarsi.
+
+Da qui nasce una riflessione più ampia: quella sul contesto. È un pensiero che si lega al modo in cui noi uomini spesso ci muoviamo in certe situazioni. Quando qualcuno ci piace, pensiamo di poterci approcciare liberamente. Ma non sempre è così. Ci sono momenti, spazi, ruoli in cui questa libertà non esiste davvero.
+
+Il rischio è mettere l'altra persona a disagio. Pensiamo di poterlo capire in tempo, di tirare il freno se percepiamo qualcosa. Ma non è sempre semplice. In alcuni contesti, lavorativi, formali, o quando stiamo offrendo un servizio, l'approccio può risultare invadente, inopportuno, anche se nasce da un sentimento sincero.
+
+Spesso non viviamo certe situazioni e non riconosciamo subito quella sensazione di vulnerabilità che possiamo suscitare.
+
+## Il ruolo delle relazioni passate
+
+Il ruolo che le ex rivestono nella nostra vita è più complesso di quanto spesso si tenda a credere. Una relazione importante lascia inevitabilmente tracce profonde nella nostra identità, ma la sua fine pone interrogativi esistenziali che meritano una riflessione attenta.
+
+È affascinante, e allo stesso tempo doloroso, osservare come un legame che ha occupato anni della nostra esistenza possa dissolversi quasi completamente. ZeroCalcare, in uno dei suoi fumetti, descrive efficacemente questa sensazione: il ricordo di una persona amata svanisce come una stella che lentamente si spegne nel cielo. Dopo aver condiviso momenti fondamentali, la memoria si riduce a pochi frammenti sbiaditi. Questo fenomeno non è casuale: rappresenta un meccanismo di autodifesa, un modo naturale dell'essere umano di alleviare la sofferenza.
+
+Si chiama soppressione emotiva, il processo com cui la mente riduce l'accesso ai ricordi doloorosi per proteggerli.
+
+Accettare la fine di una relazione, tuttavia, non è l'aspetto più difficile. La vera sfida è accettare la perdita di una connessione affettiva profonda, il passaggio da una presenza centrale nella nostra vita all'assenza totale di contatti e informazioni. Nonostante l'interruzione formale del rapporto, spesso permane un affetto latente, celato sotto barriere emotive costruite per proteggersi dal dolore.
+
+Molti tentano di accelerare il processo di distacco eliminando ogni traccia dell'altro: foto, contatti, riferimenti sui social. Personalmente, non ho mai sentito la necessità di ricorrere a questi metodi. Ritengo che l'eliminazione fisica non corrisponda a una vera rimozione emotiva: chi ha rappresentato qualcosa di autentico continuerà a vivere nei pensieri quotidiani, indipendentemente dalla presenza o assenza di stimoli esterni.
+
+Guardando al mio percorso personale, riconosco di aver commesso numerosi errori nelle relazioni passate.
+
+## Il patriarcato oggi
+
+esperienza mi ha insegnato che saper relazionarsi con l'altro sesso è una competenza che si costruisce nel tempo. Cresciamo in un contesto sociale che tende a separare precocemente maschi e femmine: nei giochi, nei gruppi scolastici, nelle attività ricreative. Questa separazione, spesso percepita come naturale, ha invece effetti profondi e duraturi sulla nostra capacità di instaurare rapporti equilibrati e paritari.  Non.  raro osservare, anche in età adulta, la tendenza a mantenere gruppi sociali omogenei per sesso. Questa dinamica rende più difficile sviluppare una vera comprensione dell'altro e alimenta stereotipi che sarebbe invece fondamentale superare già.  neprimi anni di vita. Credo fermamente che promuovere ambienti misti e inclusivi, fin dall'infanzia, sia un passo fondamentale verso una società più equa e.  me.  o patriarcale Utema spesso frainteso è quello della distinzione tra parità e.  uguaglianza di genere. Co.  e mè stato fatto notare da una cara amica"parità" implica trattare tutti allo stesso modo, senza considerare le differenze biologiche; "uguaglianza", invece, significa offrire pari opportunità tenendo conto delle diverse.  esigenze derivan.  i da caratteristiche innate. Ad esempio, nel campdella maternità del.  e prestazioni sportive, riconoscere queste differenze è essenziale per garantire equità reale.L'obiettivo è imparare a costruire rapporti paritari, in.  cui l'identità di ciascuno s.  a rispettata nella sua interezza. Questo tipo di maturità relazionale non si improvvisa: richiede capacità critica, volontà di crescita personale un percorso di autoconsapevolezza che dobvrebbiniziare durante l'infanzia.
+Ultimamente ho pensato spesso ai casi di femminicidio. Due notizie recenti, particolarmente atroci, mi hanno colpito. Sui social si parla molto di questo tema, e ogni volta si accende il dibattito tra uomini e donne. Quando si dice che tutti noi, uomini, facciamo parte della cultura patriarcale, la reazione più comune è quella di sentirsi colpevolizzati. Scatta subito una difesa. Perché nella mente si fa subito un collegamento diretto con quei fatti di cronaca. E ci si sente estranei. Completamente distanti da quel tipo di violenza. Quando ci dicono che siamo parte di un sistema che permette, alimenta, normalizza certi comportamenti, la prima reazione è sempre: "Io no".
+
+Eppure, pur non essendo e non diventando mai assassini, non è detto che nel nostro piccolo non abbiamo mai alimentato quella cultura. Dire di aver sempre trattato le donne in modo paritario è una convinzione comoda, ma non sempre reale. Crescendo si impara a riconoscere gli errori, ma questo non cancella quello che si è stati, quello che si è fatto, detto, pensato.
+
+Parlo per me, ma credo che molti possano riconoscersi. Sono cresciuto in Sicilia, e come in tanti altri contesti simili, da piccoli si respirava una certa mentalità. Si imparava a ridere delle battute sul corpo delle ragazze, sui loro vestiti, sui loro comportamenti. Fischi, commenti volgari, luoghi comuni sessisti: tutto faceva parte del paesaggio. Si assorbivano come si assorbe l'aria. Nessuno spiegava che fosse sbagliato. Anzi, erano proprio gli adulti a farle, quelle battute. E noi le ripetevamo, perché era quello che avevamo visto fare.
+
+La cultura sbagliata si trasmette così: a volte in modo diretto, da adulto a bambino, ma spesso in maniera indiretta. Come una proprietà transitiva. Passa da padre a figlio, dal figlio agli amici, e si diffonde come un virus. A volte sono proprio i coetanei a rinforzare quei comportamenti. Le battute tra amici, le classifiche sulle ragazze, la vergogna di uscire con quella "che se l'è fatta con tutto il paese". Il doppio standard che premia l'uomo che si vanta delle sue conquiste e condanna la donna che fa lo stesso.
+
+Anche la gelosia e il senso di possesso erano già lì. Non sempre nascevano da dentro, ma dalla pressione esterna, da ciò che si voleva dimostrare. Se la propria ragazza aveva un amico, era normale pensare che ci fosse qualcosa di strano. E se non lo pensavi tu, te lo facevano pensare gli altri. E così finivi per adeguarti, per reagire, per mostrarti geloso anche quando non volevi esserlo.
+
+La società ha un ruolo enorme nel farci credere che certi comportamenti siano normali. E noi li accettiamo, li facciamo nostri. Da piccoli quasi tutto quello che si impara arriva dall'esterno. Solo crescendo iniziamo a filtrare, a mettere in discussione. Ma il segno, a volte, resta li dormiente.
+
+Per questo, quando una donna dice che anche noi siamo parte del sistema, la difesa non serve a niente. Serve invece la memoria. Serve ripensare a tutte le volte in cui abbiamo agito male. A tutte le parole sbagliate, i giudizi, i comportamenti possessivi o denigratori. Anche senza cattiveria, anche senza piena consapevolezza. Basta un solo episodio, uno solo, per capire che il problema ci riguarda. Anche se non siamo criminali. Anche se non abbiamo mai alzato le mani.
+
+Abbiamo comunque contribuito, in qualche modo, a costruire una società che non tratta le donne con parità e uguaglianza. E se è così, allora è nostro compito fare qualcosa per cambiarla.
